@@ -1,1 +1,1 @@
-# Programc-n-n-G-nl-
+# Programcının_günlüğü
